@@ -1,2 +1,2 @@
 # Hello-world
-hello this is peter from Malawi I like going the lake for reacreation
+hello this is peter from Malawi I like going to the lake for recreation
